@@ -20,7 +20,7 @@
 - 🎓 Computer Engineering student at UBA
 - 🔍 Seeking trainee opportunities in testing
 - 📈 Experienced in marketing and business management
-- 🌍 Fluent in Spanish and English
+- 🌍 Inglés : Competencia intermedia tecnica
 
 <br><br>
 
